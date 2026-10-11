@@ -1,0 +1,2 @@
+# premium-damask-001-damask-satin-twill-weave-dra
+Every heritage-silk-weaving professionals needs this — most just don't know it yet.  Pre-built databases, views, and formula fields — ready to duplicate and use. Fully documented: every section explained so you know exactly what to customize.  ## What's Included  - Damask Satin &amp; Twill Weave Draft Database — fully configured and ready to use - Pre-
